@@ -1,0 +1,1 @@
+My name is Mark. I graduated from NAIT's CST (Computer Systems Technology) course back in December 1999, exactly 2 weeks before Y2K.  My favorite hobbies include Formula 1--nothing like hearing a 3.0L v-10 screaming at 19,000 rpm!
